@@ -1,4 +1,4 @@
-# IMPORTANT: March 2022
+# IMPORTANT: November 2022
 
 It's horrible to see what is happening now in Ukraine, as Russian army is [bombarding houses, hospitals and kindergartens](https://twitter.com/DavidCornDC/status/1501620037785997316). 
 
